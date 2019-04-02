@@ -1,0 +1,6 @@
+# latihangit
+dknvlaasndvhkiokdsc
+
+c,ancnasknciwiqhfihqwiocdomlmd;xlmjaqwo
+wyrtuiewfhjsanc,slaqwodqpowpxkwqclml;cm
+cnwekvnc
